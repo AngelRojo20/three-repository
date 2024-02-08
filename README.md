@@ -6,3 +6,5 @@
 4. Liga Betplay
 
 **Si tiene problemas de apuestas... no apueste**
+
+## Eso fue la semana pasada
